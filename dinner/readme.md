@@ -2,7 +2,7 @@
 
 ## Servings: 
 
-## Time to prepare: 
+## Time to prepare: 30 minutes
 
 ## Ingredients:
 
@@ -15,7 +15,7 @@
 
 
 ### Notes:
-
+Easy to make delicious recipe 😍 
 
 
 ### Codemates #
