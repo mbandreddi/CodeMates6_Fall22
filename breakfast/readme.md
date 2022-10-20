@@ -10,6 +10,10 @@
 - Bananas
 
 ## Equipment needed:
+Stove top
+Non-stick flat pan
+Mixing bowl
+Large spatula
 
 
 ## Steps for preparation:
