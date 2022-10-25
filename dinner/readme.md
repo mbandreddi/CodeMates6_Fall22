@@ -1,6 +1,6 @@
 # Replace with recipe name
 
-## Servings: 
+## Servings: 6 people
 
 ## Time to prepare: 30 minutes
 
