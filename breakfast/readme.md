@@ -31,7 +31,7 @@ Step3: Heat a lightly oiled griddle or frying pan over medium high heat. Pour or
 
 
 ### Notes:
-
+Beat the eggs before you mix them to make them more fluffy
 
 
 ### Codemates #
