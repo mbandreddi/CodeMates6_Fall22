@@ -5,7 +5,7 @@
 ## Time to prepare: 30 minutes
 
 ## Ingredients:
-1 pound lean ground beef (can substitute equivalent amount of Impossible or Beyond meat for a vegetarian version)
+1 pound lean ground beef
 
 1 (32 ounce) jar spaghetti sauce
 
@@ -33,7 +33,7 @@ ground black pepper to taste
 ## Steps for preparation:
 Preheat the oven to 350 degrees F (175 degrees C).
 
-Heat a large skillet over medium-high heat. Cook and stir ground beef in the hot skillet until browned and crumbly, 8 to 10 minutes. Drain and discard grease. Stir in spaghetti sauce and simmer over low heat for 5 minutes.
+Heat a large skillet over medium-high heat. Cook and stir ground beef in the hot skillet until browned and crumbly, 8 to 10 minutes. Drain and discard grease. Stir in spaghetti sauce and simmer for 5 minutes.
 
 Combine cottage cheese, 2 cups of mozzarella cheese, eggs, 1/2 of the grated Parmesan cheese, dried parsley, salt, and pepper in a large bowl.
 
