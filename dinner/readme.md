@@ -43,7 +43,7 @@ Bake in the preheated oven for 45 minutes. Uncover and bake for an additional 10
 
 
 ### Notes:
-Easy to make delicious recipe 😍 
+Description: Easy to make delicious recipe that saves me lots of time. This dish satisfies everyone in the family. Try it tonight! 😍 
 Source: https://www.allrecipes.com/recipe/12011/easy-lasagna-ii/
 
 ### Codemates #
